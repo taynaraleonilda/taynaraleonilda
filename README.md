@@ -1,5 +1,6 @@
-**Boas vindas ao meu perfil ** 🧋
+Boas vindas ao meu perfil 🛍️
 
--Estou estudando na Alura
-- hasckel.taynara@escola.pr.gov.br 🛍️
-- 
+Você pode entrar em contato comigo 📫
+- hasckel.taynara@escola.pr.gov.br
+
+![](https://media1.tenor.com/m/_2SIBTXgiFwAAAAC/teh-cat-comin.gif)
